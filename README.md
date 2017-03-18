@@ -1,2 +1,2 @@
 # tejidoshv
-pagina para vender amigurumi
+pagina para vender amigurumi hechos a mano
